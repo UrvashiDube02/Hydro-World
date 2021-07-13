@@ -4,16 +4,16 @@
 
 Blue Revolution, the Neel Kranti Mission has the vision to achieve economic prosperity of the country and the fishes and fish farmers as well as contribute towards food and nutritional security through full potential utilization of water resources for fisheries development in a sustainable manner, keeping in view the bio-security and environmental concerns. The restructured Plan Scheme on Blue Revolution - Integrated Development and Management of Fisheries has been approved at a total central outlay of Rs 3000 crore for implementation during a period of five years (2015-16 to 2019-20). It has many objectives like creating an enabling environment for integrated development of the full potential of fisheries of the country, alongwith substantially improvement in the income status of fishers and fish farmers keeping in view the sustainability, biosecurity and environmental concerns.
 
-**OBJECTIVE OF PROJECT:**
+**OBJECTIVE OF PROJECT**
 1. Improving the economic growth 
 2. Improving the nutritional and food security 
 3. Increase in employment 
 4. Utilization of water resources 
 5. Source of income to farmers 
 
-Focusisng on a particular region, we worked upon studying the effect of blue revolution on improving the economic growth of country. 
+Focusisng on a particular region, I worked upon studying the effect of blue revolution on improving the economic growth of country. 
 
-**OBJECTIVES ON WHICH MISSION FOCUSSED:**
+**OBJECTIVES ON WHICH MISSION FOCUSSED**
 
 1. IMPROVING THE ECONOMIC GROWTH : It will help in increasing the GDP of our country through increase in food production and food processing. Currently India production is around 10 million ton and the target is upto 15 million tons by 2020. 
 
@@ -27,11 +27,12 @@ Focusisng on a particular region, we worked upon studying the effect of blue rev
 
 
 **METHODOLGY**
-The mission set on fire had made so many onjectives to fulfill. All are equally important , but we decided to work on covering the objective of IMPROVING ECONOMIC GROWTH. We basically wanted to know if it was able to gain success in the field of economy or not , so we reached to a conclusion after surfing on net based on existing reports and articles. 
+
+The mission set on fire had made so many onjectives to fulfill. All are equally important , but I decided to work on covering the objective of IMPROVING ECONOMIC GROWTH. I basically wanted to know if it was able to gain success in the field of economy or not , so I reached to a conclusion after surfing on net based on existing reports and articles. 
 
 **RESULTS**
  
-We have the following results stating the effects which blue revolution had on improving the economy. 
+I have the following results stating the effects which blue revolution had on improving the economy. 
 
 1. India’s fish production has increased by 19 percent over last three years.
 
@@ -45,9 +46,10 @@ We have the following results stating the effects which blue revolution had on i
 
 6. It has evolved as a viable commercial farming practice from traditionally backyard activity over last 3 decades and shown annual growth rate of 6-7 percent which is quite impressive. 
 
-7.In seventies mainly shrimp was exported but due to export promotional measures in eighties frozen fish etc. was also exported. Due to intro. Of scientific farming , export of frozen value added shrimp is continuing as major foreign exchange earned. 
+7. In seventies mainly shrimp was exported but due to export promotional measures in eighties frozen fish etc. was also exported. Due to intro. Of scientific farming , export of frozen value added shrimp is continuing as major foreign exchange earned. 
 
 8. There has been increase in production of fish , export and all has increased the GDP of our country . Currently India’s production is 10 million ton and target is to increase it to 15- 20 by 2020.
 
 **CONCLUSION**
+
 I have concluded that Blue Revolution had a positive impact on the economy, so it was worth starting the mission and having made such objectives for the benefit of the country. 
